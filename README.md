@@ -14,7 +14,7 @@ This page provides my contact information for academic and professional purposes
 
 *   **个人邮箱 (Personal Emails):**
     *   [dongjinyang793@gmail.com](mailto:dongjinyang793@gmail.com) (Google)
-    *   [996498857@qq.com](mailto:996498857@qq.com) (QQ)
+    *   [996498857@qq.com](mailto:996498857@qq.com) (QQ邮箱)
 
 ## 更多链接 / More Links
 
